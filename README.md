@@ -4,3 +4,5 @@ Featured songs:
 2. Me Maten - C.tangana
 3. BOOKER T - Bad Bunny
 4. Tanta Vida -Xavibo
+5. WoW - Tiëso
+6. Computers Take over the world - Armin van Buuren 
